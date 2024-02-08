@@ -9,6 +9,4 @@
 - **E-commerce Solutions:** Develop robust and secure online shopping platforms.
 
 
-📱 LinkedIn: https://www.linkedin.com/in/laibaiqbal/
-
 I look forward to working with you and bringing your projects to life! 👨‍💻🚀
